@@ -1,2 +1,2 @@
 # SY-s24
-C#
+C# Class
