@@ -4,5 +4,5 @@
 <br> 1-5-2024 - Up dating throught Filles
 <br>
 <br>
-Tu na rarze jest szczernisko.
+Tu na rarze jest szczernisko. <br>
 Ale bedrze San-Fran-Sisko!!
